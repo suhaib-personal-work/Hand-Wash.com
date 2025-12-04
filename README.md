@@ -1,1 +1,1 @@
-# Hand-Wash.com
+# Hand Wash.com
